@@ -1,0 +1,1 @@
+tive ajuda do chatgpt.
